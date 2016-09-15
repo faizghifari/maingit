@@ -1,1 +1,3 @@
 # maingit
+
+aing ketinggalan cuk
